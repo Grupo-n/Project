@@ -1,0 +1,1 @@
+Jonathan Alexander Granados Méndez - joagranadosme - Scrum Master
