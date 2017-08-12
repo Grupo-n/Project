@@ -1,1 +1,1 @@
-Jonathan Alexander Granados Méndez - joagranadosme - Scrum Master
+Jonathan Alexander Granados Méndez - joagranadosme@unal.edu.co - Scrum Master
